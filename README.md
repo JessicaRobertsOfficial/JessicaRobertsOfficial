@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @JessicaRobertsOfficial
-- 👀 I’m interested in moon
+- 👀 I’m interested in the moon
 - 🌱 I’m currently learning whatever
 - 💞️ I’m looking to collaborate on health programs
 - 📫 How to reach me jessicarobertsofficial1@gmail.com
